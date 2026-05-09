@@ -1,16 +1,17 @@
-## Hi there 👋
+&nbsp;<div align="center">
 
-<!--
-**OV3RCA5T/OV3RCA5T** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# wip
 
-Here are some ideas to get you started:
+</div>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Party notification
+
+Me: tirgery is your smile sitched
+
+Tirgery: *mumbles no*
+
+Michadl: *cuts stitches*
+
+Tirgery: N-NO!!!!
+
+me: tirgery, its okay!!!
