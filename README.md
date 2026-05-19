@@ -9,5 +9,5 @@ art by me #1 contractee fan
 
 ⠀ ⠀─── ⠀ ▬▬ ⠀ ⠀ [SIGN ATABOOK](https://contracteeforsaken.atabook.org)⠀─── ───⠀  ▴ ▬▬⠀ ⠀  [PT RENTRY](https://rentry.co/heavendays) ⠀ ⠀▬▬  ▴ ⠀ [PRONOUNS](https://pronouns.cc/@RADIANT_DAY) ─── 𓏵⠀ [ROBLOX ACC](https://www.roblox.com/users/7809493979/profile) ⠀ ⠀ ▬▬ ─── ───── [MAIN RENTRY](https://rentry.co/AgentTwilight) ──────── [SHARED RENTRY](https://rentry.co/Devioustwins)
 
-[hi twin 🥹🤍](https://github.com/ihasabunnylulz)
+omg [hi twin 🥹🤍](https://github.com/ihasabunnylulz) #DEVIOUSDUO 
 </div>
