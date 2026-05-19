@@ -1,11 +1,14 @@
 &nbsp;<div align="center">
 
+&nbsp;<div align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=20&duration=2500&pause=1000&color=B36234&center=true&width=450&lines=%E2%80%99Hi+my+name+is+Michael!;I'm+mainly+busy+so+semi+active..;Feel+free+to+bmf!%E2%80%99;"/>
+
 $${\color{orange}art \space by \space me \space No.1 \space contractee \space fan}$$
 
 ![Label](https://img.shields.io/badge/Your_number_one_pilot.-C46E1D) 
 ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=522D1D&label=DEBTORS.)
 ⠀ ⠀ ![Label](https://img.shields.io/badge/contractee_lover-453532)
-# ![](https://files.catbox.moe/11nzi7.png)
+# ![](https://files.catbox.moe/p6784h.png)
 ─── ⠀ ⠀  ིྀ 𓎟ᛝ𓎟𓎟　†　𓎟𓎟ᛝ𓎟 ྀི⠀ ⠀ ───
 
 <details><summary>$${\color{orange}ME \space INFO!}$$ </summary><p>
