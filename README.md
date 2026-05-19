@@ -7,7 +7,7 @@ art by me #1 contractee fan
 # ![](https://files.catbox.moe/11nzi7.png)
 ─── ⠀ ⠀  ིྀ 𓎟ᛝ𓎟𓎟　†　𓎟𓎟ᛝ𓎟 ྀི⠀ ⠀ ───
 
-⠀ ⠀─── ⠀ ▬▬ ⠀ ⠀ [𝘼𝙩𝙖𝙗𝙤𝙤𝙠](https://contracteeforsaken.atabook.org)⠀─── ───⠀  ▴ ▬▬⠀ ⠀  [𝙋𝙤𝙣𝙮𝙏𝙤𝙬𝙣 𝙍𝙚𝙣𝙩𝙧𝙮](https://rentry.co/heavendays) ⠀ ⠀▬▬  ▴ ⠀ [𝙋𝙧𝙣𝙨.𝘾𝘾](https://pronouns.cc/@RADIANT_DAY) ─── 𓏵⠀ [𝙍𝙤𝙗𝙡𝙤𝙭 𝘼𝙘𝙘𝙤𝙪𝙣𝙩.](https://www.roblox.com/users/7809493979/profile) ⠀ ⠀ ▬▬ ─── 
+⠀ ⠀─── ⠀ ▬▬ ⠀ ⠀ [SIGN ATABOOK](https://contracteeforsaken.atabook.org)⠀─── ───⠀  ▴ ▬▬⠀ ⠀  [PT RENTRY](https://rentry.co/heavendays) ⠀ ⠀▬▬  ▴ ⠀ [PRONOUNS](https://pronouns.cc/@RADIANT_DAY) ─── 𓏵⠀ [ROBLOX ACC](https://www.roblox.com/users/7809493979/profile) ⠀ ⠀ ▬▬ ─── ───── [MAIN RENTRY](https://rentry.co/AgentTwilight) ──────── [SHARED RENTRY](https://rentry.co/Devioustwins)
 
 [hi twin 🥹🤍](https://github.com/ihasabunnylulz)
 </div>
