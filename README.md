@@ -11,7 +11,7 @@ $${\color{orange}art \space by \space me \space No.1 \space contractee \space fa
 # ![](https://files.catbox.moe/p6784h.png)
 ─── ⠀ ⠀  ིྀ 𓎟ᛝ𓎟𓎟　†　𓎟𓎟ᛝ𓎟 ྀི⠀ ⠀ ───
 
-[ATABOOK](https://contracteeforsaken.atabook.org) . [RENTRY](https://rentry.co/AgentTwilight) . [SHARED RENTRY](https://rentry.co/devioustwins)
+[ATABOOK](https://contracteeforsaken.atabook.org) . [RENTRY](https://rentry.co/frostbitten) . [SHARED RENTRY](https://rentry.co/devioustwins)
 
 <details><summary>$${\color{orange}ME \space INFO!}$$ </summary><p>
 
