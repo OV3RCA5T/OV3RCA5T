@@ -11,7 +11,7 @@ $${\color{orange}art \space by \space me \space No.1 \space contractee \space fa
 # ![](https://files.catbox.moe/p6784h.png)
 ─── ⠀ ⠀  ིྀ 𓎟ᛝ𓎟𓎟　†　𓎟𓎟ᛝ𓎟 ྀི⠀ ⠀ ───
 
-[ATABOOK](https://contracteeforsaken.atabook.org) . [RENTRY](https://rentry.co/frostbitten) . [SHARED RENTRY](https://rentry.co/devioustwins)
+[ATABOOK](https://contracteeforsaken.atabook.org) . [RENTRY](https://rentry.co/frostbitten) . [SHARED RENTRY](https://rentry.co/COOLtwins)
 
 <details><summary>$${\color{orange}ME \space INFO!}$$ </summary><p>
 
@@ -20,5 +20,5 @@ $${\color{#8F6553}I \space love \space cats \space and \space seals, \space I \s
 </p>
 </details>
 
-omg [hi twin 🥹🤍](https://github.com/ihasabunnylulz) #DEVIOUSDUO 
+ilmtwins. Hello my CUTEST [bunbunny shark](https://github.com/Gamblersi) and my ADORB [black kit prince](https://github.com/UICTIM)
 </div>
