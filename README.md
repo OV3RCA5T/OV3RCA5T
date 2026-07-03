@@ -1,5 +1,7 @@
 &nbsp;<div align="center">
 
+![](https://files.catbox.moe/omxfs8.jpeg) 
+
 &nbsp;<div align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=20&duration=2500&pause=1000&color=B36234&center=true&width=450&lines=%E2%80%99Hi+my+name+is+Michael!;I'm+mainly+busy+so+semi+active..;Feel+free+to+bmf!%E2%80%99;"/>
 
