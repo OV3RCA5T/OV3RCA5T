@@ -1,10 +1,13 @@
 &nbsp;<div align="center">
 
-![](https://files.catbox.moe/jwpf3m.jpeg)
+guys you like my new drawing yay or nay
 
-![](https://files.catbox.moe/qowg0x.jpeg)
+![](https://files.catbox.moe/r2szbg.jpeg)
 
-![](https://files.catbox.moe/omxfs8.jpeg) 
+DONT STEAL anyways 
+
+i love himm PROOF: [1](https://github.com/fan-town) & [2](https://github.com/title-town)
+
 
 &nbsp;<div align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=20&duration=2500&pause=1000&color=B36234&center=true&width=450&lines=%E2%80%99Hi+my+name+is+Michael!;I'm+mainly+busy+so+semi+active..;Feel+free+to+bmf!%E2%80%99;"/>
@@ -17,7 +20,7 @@ $${\color{orange}art \space by \space me \space No.1 \space contractee \space fa
 # ![](https://files.catbox.moe/p6784h.png)
 ─── ⠀ ⠀  ིྀ 𓎟ᛝ𓎟𓎟　†　𓎟𓎟ᛝ𓎟 ྀི⠀ ⠀ ───
 
-[ATABOOK](https://contracteeforsaken.atabook.org) . [RENTRY](https://rentry.co/frostbitten) . [SHARED RENTRY](https://rentry.co/COOLtwins)
+[ATABOOK](https://contracteeforsaken.atabook.org) . [RENTRY](https://rentry.co/contractee) . [SHARED RENTRY](https://rentry.co/COOLtwins)
 
 <details><summary>$${\color{orange}ME \space INFO!}$$ </summary><p>
 
