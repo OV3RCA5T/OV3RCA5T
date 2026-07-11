@@ -32,5 +32,4 @@ $${\color{#8F6553}I \space love \space cats \space and \space seals, \space I \s
 ilmtwins. Hello my CUTEST [bunbunny shark](https://github.com/Gamblersi) and my ADORB [black kit prince](https://github.com/UICTIM)
 </div>
 
-hi andrw hi ellit
-![](https://files.catbox.moe/7y4qs1.jpeg)
+ everything a work in progress
