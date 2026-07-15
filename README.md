@@ -29,7 +29,6 @@ $${\color{#8F6553}I \space love \space cats \space and \space seals, \space I \s
 </p>
 </details>
 
-ilmtwins. Hello my CUTEST [bunbunny shark](https://github.com/Gamblersi) and my ADORB [black kit prince](https://github.com/UICTIM)
 </div>
 
  everything a work in progress
