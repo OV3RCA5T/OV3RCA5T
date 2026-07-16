@@ -1,4 +1,7 @@
 &nbsp;<div align="center">
+# THANKS FOR 450+ FOLLOWERS! 
+
+I'm grateful for everyone here :-)
 
 guys you like my new drawing yay or nay
 
