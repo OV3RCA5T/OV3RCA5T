@@ -11,6 +11,8 @@ guys you like my new drawing yay or nay
 
 DONT STEAL anyways 
 
+revamping soon I just have 0 MOTIVATION OK
+
 i love himm PROOF: [1](https://github.com/fan-town) & [2](https://github.com/title-town) & [3](https://github.com/pt-walk-of-fame)
 
 
