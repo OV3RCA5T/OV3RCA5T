@@ -3,6 +3,8 @@
 
 I'm grateful for everyone here :-)
 
+hi [euniey AKA @PixelBrickz](https://github.com/PixelBrickz) HI BFFIEY 6EVER 
+
 guys you like my new drawing yay or nay
 
 ![](https://files.catbox.moe/r2szbg.jpeg)
