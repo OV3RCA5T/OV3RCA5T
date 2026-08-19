@@ -1,4 +1,5 @@
 &nbsp;<div align="center">
+@gravity falls fans TALK TO ME.
 # THANKS FOR 450+ FOLLOWERS! 
 
 I'm grateful for everyone here :-)
