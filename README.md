@@ -1,5 +1,10 @@
 &nbsp;<div align="center">
-GUYS WAIT I’M STILL WORKING ON SOMETHING FOR THE 500+ FOLLOWERS OK
+
+$${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
+
+![](https://files.catbox.moe/v3w1qs.png) 
+
+![](https://files.catbox.moe/hn5bhe.png)
 
 ![](https://files.catbox.moe/42edtu.png)
 
