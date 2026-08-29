@@ -1,4 +1,6 @@
 &nbsp;<div align="center">
+GUYS WAIT I’M STILL WORKING ON SOMETHING FOR THE 500+ FOLLOWERS OK
+
 ![](https://files.catbox.moe/42edtu.png)
 
 
