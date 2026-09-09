@@ -18,7 +18,7 @@ $${\color{orange}art \space by \space me \space No.1 \space contractee \space fa
 ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=2DEBE7&label=DEALS)
 ⠀ ⠀ ![Label](https://img.shields.io/badge/STANFORD’S_FAN!-453532)
 
-[ATABOOK](https://bookofbill.atabook.org) . [RENTRY](https://rentry.co/contractee)
+[ATABOOK](https://cotl.atabook.org) . [RENTRY](https://rentry.co/contractee)
 
 <details><summary>$${\color{orange}ME \space INFO!}$$ </summary><p>
 
