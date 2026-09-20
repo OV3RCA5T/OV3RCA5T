@@ -2,7 +2,7 @@
 
 $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
 
-![](https://files.catbox.moe/5z8abq.png)
+![](https://files.catbox.moe/05tftu.png)
 
 $${\color{#8F6553} ^ \space art \space by \space me}$$
 
