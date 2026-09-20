@@ -2,12 +2,9 @@
 
 $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
 
-![](https://files.catbox.moe/v3w1qs.png) 
+![](https://files.catbox.moe/5z8abq.png)
 
-![](https://files.catbox.moe/hn5bhe.png)
-
-![](https://files.catbox.moe/42edtu.png)
-
+$${\color{#8F6553} ^ \space art \space by \space me}$$
 
 &nbsp;<div align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=20&duration=2500&pause=1000&color=B36234&center=true&width=450&lines=%E2%80%99ITS+FUNNY+HOW+DUMB+YOU+ARE!%E2%80%99;"/>
