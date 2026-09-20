@@ -13,9 +13,7 @@ $${\color{#8F6553} ^ \space art \space by \space me}$$
 &nbsp;<div align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=20&duration=2500&pause=1000&color=B36234&center=true&width=450&lines=%E2%80%99ITS+FUNNY+HOW+DUMB+YOU+ARE!%E2%80%99;"/>
 
-$${\color{orange}art \space by \space me \space No.1 \space contractee \space fan}$$
-
-[ATABOOK](https://cotl.atabook.org) . [RENTRY](https://rentry.co/contractee)
+[TUMBLR](www.tumblr.com/clovereberry) . [ATABOOK](https://cotl.atabook.org) . [RENTRY](https://rentry.co/contractee) 
 
 <details><summary>$${\color{orange}ME \space INFO!}$$ </summary><p>
 
