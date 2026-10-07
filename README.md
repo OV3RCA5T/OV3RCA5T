@@ -2,7 +2,7 @@
 
 $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
 
-[TUMBLR](https://clovereberry.tumblr.com) . [STRAWPAGE](https://tbob.straw.page) . [ATABOOK](https://thebookofbill.atabook.org) . [RENTRY](https://rentry.co/contractee) 
+[TUMBLR](https://clovereberry.tumblr.com) . [STRAWPAGE](https://cryptology.straw.page) . [ATABOOK](https://hypersexual.atabook.org) . [RENTRY](https://rentry.co/cryptology) 
 
 ![Label](https://img.shields.io/badge/WORLD’S_HANDSOMENEST_TRIANGLE!-C46E1D) 
 ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=2DEBE7&label=DEALS)
