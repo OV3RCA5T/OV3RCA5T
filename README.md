@@ -11,7 +11,7 @@ $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
 
 ![](https://media.tenor.com/LZqU4FoHTdMAAAAM/dusty-crophopper-disney-planes.gif)
 
-$${\color{#8F6553} ^ \space art \space by \space me}$$
+$${\color{#8F6553} ^ \space this \space is \space me \space by \space the \space way}$$
 &nbsp;<div align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=20&duration=2500&pause=1000&color=B36234&center=true&width=450&lines=%E2%80%99ITS+FUNNY+HOW+DUMB+YOU+ARE!%E2%80%99;"/>
 
