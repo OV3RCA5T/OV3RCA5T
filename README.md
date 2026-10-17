@@ -18,6 +18,8 @@ $${\color{#8F6553} ^ \space this \space is \space me \space by \space the \space
 <details><summary>$${\color{orange}ME \space INFO!}$$ </summary><p>
 
 5 years Gravity Falls hyperfixation and a 2-3 years Planes hyperfixation
+My favorite color is triangle and my favorite shape is orange
+Broad Bordered Bee Hawk Moth alterhuman lewl
 
 </p>
 </details>
