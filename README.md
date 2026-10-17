@@ -13,7 +13,7 @@ $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
 
 $${\color{#8F6553} ^ \space this \space is \space me \space by \space the \space way}$$
 &nbsp;<div align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Poppins+SC&size=20&duration=2500&pause=1000&color=B36234&center=true&width=450&lines=%E2%80%99ITS+FUNNY+HOW+DUMB+YOU+ARE!%E2%80%99;"/>
+<img src="https://readme-typing-svg.demolab.com?font=Poppins+SC&size=20&duration=2500&pause=1000&color=B36234&center=true&width=450&lines=%E2%80%99I've+flown+for+thousands+of+miles;But+I've+never+went+anywhere+else.%E2%80%99;"/>
 
 <details><summary>$${\color{orange}ME \space INFO!}$$ </summary><p>
 
