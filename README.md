@@ -1,5 +1,4 @@
-I hate this site lol
-+"ipallaloernckeporjfpp3 NOTHING IS LOADING
+wip
 &nbsp;<div align="center">
 
 $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
