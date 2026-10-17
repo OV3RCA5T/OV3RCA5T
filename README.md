@@ -1,4 +1,5 @@
-wipallaloernckeporjfpp3 NOTHING IS LOADING
+I hate this site lol
++"ipallaloernckeporjfpp3 NOTHING IS LOADING
 &nbsp;<div align="center">
 
 $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
@@ -17,7 +18,7 @@ $${\color{#8F6553} ^ \space this \space is \space me \space by \space the \space
 
 <details><summary>$${\color{orange}ME \space INFO!}$$ </summary><p>
 
-$${\color{#8F6553}ONGOING \space GRAVITY \space FALLS \space HYPERFIXATION \space of \space 5+ \space YEARS!}$$
+5 years Gravity Falls hyperfixation and a 2-3 years Planes hyperfixation
 
 </p>
 </details>
