@@ -1,3 +1,4 @@
+wipallaloernckeporjfpp3 NOTHING IS LOADING
 &nbsp;<div align="center">
 
 $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
@@ -8,7 +9,7 @@ $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
 ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=2DEBE7&label=DEALS)
 ⠀ ⠀ ![Label](https://img.shields.io/badge/STANFORD’S_FAN!-453532)
 
-<img src="https://files.catbox.moe/05tftu.png" width="500">
+![](https://media.tenor.com/LZqU4FoHTdMAAAAM/dusty-crophopper-disney-planes.gif)
 
 $${\color{#8F6553} ^ \space art \space by \space me}$$
 &nbsp;<div align="center">
