@@ -19,7 +19,7 @@ $${\color{#8F6553} ^ \space this \space is \space me \space by \space the \space
 
 5 years Gravity Falls hyperfixation and a 2-3 years Planes hyperfixation
 My favorite color is triangle and my favorite shape is orange
-Broad Bordered Bee Hawk Moth alterhuman lewl
+Broad Bordered Bee Hawk Moth alterhuman lewl ALSO it turns out I've been a more leaning to heavy machinekinning/robotkinning of helicopters (helitankers specifically) and fighter jets please I don't know what the heck is going on
 
 </p>
 </details>
