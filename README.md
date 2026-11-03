@@ -1,4 +1,4 @@
-wip
+IDK IF THIS WORKS SORRY I can't see the IMAGE
 &nbsp;<div align="center">
 
 $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
@@ -9,7 +9,9 @@ $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
 ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=B39E78&label=COWBOYS)
 ⠀ ⠀ ![Label](https://img.shields.io/badge/PRIDEYEAR_FAN!-453532)
 
-<img src="https://i.postimg.cc/6Q928JR4/IMG-9010.gif" alt="Pride Year">
+
+![](https://i.postimg.cc/6Q928JR4/IMG-9010.gif)
+
 
 $${\color{#B39E78} me \space and \space my \space woody \space by \space the \space way.}$$
 &nbsp;<div align="center">
