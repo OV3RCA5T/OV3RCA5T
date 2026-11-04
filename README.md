@@ -10,7 +10,7 @@ $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
 ⠀ ⠀ ![Label](https://img.shields.io/badge/PRIDEYEAR_FAN!-453532)
 
 
-![](https://i.postimg.cc/6Q928JR4/IMG-9010.gif)
+![](https://i.postimg.cc/0QGXXQDC/IMG-9054.gif)
 
 
 $${\color{#B39E78} me \space and \space my \space woody \space by \space the \space way.}$$
