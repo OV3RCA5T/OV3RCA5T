@@ -9,8 +9,7 @@ $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
 ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=B39E78&label=COWBOYS)
 ⠀ ⠀ ![Label](https://img.shields.io/badge/PRIDEYEAR_FAN!-453532)
 
-
-![](https://i.postimg.cc/0QGXXQDC/IMG-9054.gif)
+<img src="https://i.postimg.cc/0QGXXQDC/IMG-9054.gif" width="300">
 
 
 $${\color{#B39E78} me \space and \space my \space woody \space by \space the \space way.}$$
