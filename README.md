@@ -1,4 +1,4 @@
-IDK IF THIS WORKS SORRY I can't see the IMAGE
+wip
 &nbsp;<div align="center">
 
 $${\color{#8F6553}THANKS \space FOR \space 500+ \space FOLLOWERS!}$$
